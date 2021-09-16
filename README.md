@@ -1,0 +1,2 @@
+# longgdanhiendai
+khongcogi
